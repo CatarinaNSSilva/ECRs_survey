@@ -1,4 +1,4 @@
-## “I need a job longer than a year”: Short term contracts threaten viability of ECR careers
+## How can ECRs progress through their academic career? Success factors, concerns and suggestions for reform 
 
 ### Abstract
 
